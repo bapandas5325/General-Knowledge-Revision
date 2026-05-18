@@ -1,6 +1,6 @@
 # GK PDF Notes
 
-Personal revision PDFs and static GK notes for Knowledge .
+Personal revision PDFs and static GK notes.
 
 (1)  National Institutes & Headquarters - Static GK PDFs - Quick Revision Notes
 ## Contents
