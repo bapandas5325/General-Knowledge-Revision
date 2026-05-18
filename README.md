@@ -1,9 +1,6 @@
 ## GK PDF Notes
 
-## Personal revision PDFs and static GK notes.
-
-<font color="blue"> 1. Important National Institutes & Organizations of India</font>  
-
+## Personal revision PDFs and static GK notes. 
 ## Contents
 
 ### 🔵 1. Important National Institutes & Organizations of India
